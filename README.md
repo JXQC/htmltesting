@@ -9,4 +9,6 @@ I am a gamer and I want to learn coding on github.
 
  mi estas la ovokato kaj mi pensas GITHUB sangigos la mondo!
  ![egg cat](https://user-images.githubusercontent.com/69737527/124862442-3a259100-df6a-11eb-9c46-8bf8d8f1197b.jpg)
- yo wtf
+
+
+ THIS IS MEGA POGGERS!!!!!!!
